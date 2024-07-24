@@ -2,7 +2,7 @@
 - 👀 I’m interested in Website development, illustrations, drawing and gaming stuff
 - 🌱 I’m currently learning Full stack Development also little bit of figma and Linux too
 - 💞️ I’m looking to collaborate on various projects related to web page development and also some creative stuff..
-- 📫 How to reach me : my email id is @krayus123000@gmail.com (just don't spam me 😊 )
+- 📫 How to reach me : my email id is @krayush123000@gmail.com (just don't spam me 😊 )
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: naah there's no fun fact about me just kidding the logo in my dp has also been made by me, so if you are interested in illustrations and stuff feel free to contact me :)
 
