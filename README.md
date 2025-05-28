@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KumarAyush000
 - 👀 I’m interested in Website development, illustrations, drawing and gaming stuff
-- 🌱 I’m currently learning Full stack Development also little bit of figma and Linux too
+- 🌱 I’m currently learning Full stack Development also little bit of Linux too
 - 💞️ I’m looking to collaborate on various projects related to web page development and also some creative stuff..
 - 📫 How to reach me : my email id is @krayush123000@gmail.com (just don't spam me 😊 )
 - 😄 Pronouns: he/him
